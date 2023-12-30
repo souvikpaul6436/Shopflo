@@ -4,6 +4,7 @@
 ![Screenshot 2023-12-30 043048](https://github.com/souvikpaul6436/Shopflo/assets/74528140/3643ab80-bc3e-4bb2-a2d9-76341c5c5eb9)
 
 # Picture 2:
+![Screenshot 2023-12-30 043111](https://github.com/souvikpaul6436/Shopflo/assets/74528140/9eea0e3d-875b-432c-a9db-fa90cda9998d)
 
 
 # Picture 3:
